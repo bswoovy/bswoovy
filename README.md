@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Brooke @bswoovy, founder and CEO of Swoovy- looking for a tech co-founder.  We have a mission to increase volunteerism for nonprofits and strengthen human connections while driving impact.  Weaving volunteering in to the way we live, work, and play- to make it easy, and fun!  We started out as a new kind of dating app in Austin, TX, connecting singles to go on a date to volunteer at a nonprofit.  Everyone LOVED it, but it was difficult to gain investment to scale and with the pandemic we lost a lot of engagement.  During 2020, however, we made a successful pivot to build out a corporate platform to support employee volunteer programs. Looking for a passionate tech lead to join the journey!
+- 👀 I’m interested in social impact and leadership.
+- 🌱 I’m currently leading a start-up and lookiing for a technical co-founder to join the team!
+- 💞️ I’m looking to collaborate on community impact
+- 📫 How to reach me: brooke.waupsh@swoovy.com
